@@ -1,1 +1,1 @@
-hello_world
+smiling face
